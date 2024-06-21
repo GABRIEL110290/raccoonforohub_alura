@@ -7,4 +7,4 @@
 
 ![Captura de pantalla (169)](https://github.com/GABRIEL110290/raccoonforohub_alura/assets/126290962/a1c74583-9d38-4209-9e18-e860b2e15bc2)
 
-![Captura de pantalla (159)](https://github.com/GABRIEL110290/raccoonforohub_alura/assets/126290962/2f1c9c51-aae0-4cf7-9797-e0e279694149)
+
